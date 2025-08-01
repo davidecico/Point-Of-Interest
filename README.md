@@ -1,0 +1,1 @@
+© Copyright 2024 by [Angelo Ripamonti](https://github.com/AngeloRipamonti), [Andrea Falcone](https://github.com/AndreaFalcone1), [Davide Cicoria](https://github.com/DavideCicoria) & [Marcello Dong](https://github.com/marcomissana007) - All rights reserved.
